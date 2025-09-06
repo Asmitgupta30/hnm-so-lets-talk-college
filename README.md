@@ -1,7 +1,7 @@
 # hnm-so-lets-talk-college
-College Chronicles
+College what?
 
-Welcome to my College Chronicles, a.k.a. the repository of sleepless nights, ambitious projects, and slightly more legible handwriting (progress, right?).
+the repository mostly made in the nights (ackwnoledging my fked up sleep schedule) a few ambitious projects, and slightly more legible handwriting (progress, right?).
 
 After years of navigating coursework, labs, and just a few existential crises, I’ve decided it’s time to organize the chaos. This repository is a collection of everything I’ve worked on during my college years—projects, notes, ideas, and the occasional "what was I thinking?" moment.
 
