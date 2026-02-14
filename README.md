@@ -23,11 +23,10 @@ Books & Resources: The academic lifelines that kept me afloat (and maybe a few I
 
 Random Artifacts: Ideas, drafts, and the occasional "this seemed like a good idea at the time."
 
-My Goals (The Serious Part)
+ah well
 
-Make Sense of It All: Turn my mountain of work into something organized and useful.
-Learn From the Past: Reflect on how far I’ve come and where I want to go.
-Create Something Worth Sharing: Maybe this chaos will inspire someone—or at least give them a laugh.
+Make Sense of It All Turn my mountain of work into something organized and useful.
+Create Something Worth Sharing: Maybe this chaos will inspire someone or at least give them a laugh.
 This is an ongoing project, so join me as I untangle the web of my college life. Who knows? You might just find a gem hidden in here.
 
 
